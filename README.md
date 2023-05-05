@@ -4,3 +4,4 @@
 - [Urge to Control is the Mother of Anxiety](https://jyotirgamya.org/article/control-mother-of-anxiety/)
 - [Ten Strategies to Cope with Anxiety](https://jyotirgamya.org/opinion/ten-strategies-cope-anxiety/)
 - [What is integral somatic psychotherapy?](https://jyotirgamya.org/opinion/integral-somatic-psychology/)
+- [How to deal with anxiety](https://jyotirgamya.org/opinion/overcoming-anxiety/)
